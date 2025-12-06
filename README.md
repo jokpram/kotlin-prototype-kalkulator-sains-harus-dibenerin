@@ -1,1 +1,1 @@
-'masih dalam proses pengembangan loh ya'
+masih dalam proses pengembangan loh ya
